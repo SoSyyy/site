@@ -1,4 +1,4 @@
 http://www.narralyzer.com/
 
-Even kijken of ik dingen op de juiste manier kan editen... 
-Blijkbaar wel :)
+En nu even kijken of ik de SoSyyy master branch kan aanpassen...
+Spanning en sensatie!
